@@ -5,7 +5,9 @@
 - 🌱 I was admitted by the Master of Data Science program at the University of Southern California. 
 -     However due to 10043 policy restrictions, I was forced to drop out.
      
-- 💞️ I am looking for a supervisor who is interested in enrolling PhD students and I am willing to pay for all the study and research expenses myself. (if you can give me a chance)
+- 💞️ I am looking for a supervisor who is interested in enrolling PhD students and I am willing to pay for all the study and research expenses myself. (I would appreciate it if you could give me a chance)
+- I'm willing to try everything I've touched and haven't touched. Although it takes me a little time to build my interest in an unfamiliar event, it usually takes less than 1 week. I am also very willing to do more in-depth research and learning.
+
 - 📫 My email-> (zhaoyuxi@usc.edu); My Phone number +8615319985665; You are welcome to contact me anytime！
 
 <!---
