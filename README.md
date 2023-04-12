@@ -7,7 +7,7 @@
      
 - 💞️ I am looking for a supervisor who is interested in enrolling PhD students and I am willing to pay for all the study and research expenses myself. (I would appreciate it if you could give me a chance)
 - I'm willing to try everything I've touched and haven't touched. Although it takes me a little time to build my interest in an unfamiliar event, it usually takes less than 1 week. I am also very willing to do more in-depth research and learning.
-- (Now, I was in USYD MDS)
+- (Now, I'm in USYD MDS，Here I will upload some study materials for myself and later students.)
 
 - 📫 My email-> (zhaoyuxi@usc.edu); You are welcome to contact me anytime！
 
